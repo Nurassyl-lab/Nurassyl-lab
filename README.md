@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Nura,
+- Currently I'm a bachelor in NYCU ECE!
